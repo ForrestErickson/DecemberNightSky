@@ -1,9 +1,9 @@
 # DecemberNightSky
-![image](https://github.com/ForrestErickson/NovemberNightSky/assets/5836181/3fe4b3c4-6f00-4418-bd65-d1a9d3d1b065)
+![image](https://github.com/ForrestErickson/DecemberNightSky/assets/5836181/0701ab9b-283e-40d3-b701-e8483b27fb55)
 
 Some of the zodiac for December.
 
-![image](https://github.com/ForrestErickson/NovemberNightSky/assets/5836181/a39724a1-0cd2-49be-9396-6b1b73eb7d07)
+![image](https://github.com/ForrestErickson/DecemberNightSky/assets/5836181/eed3538d-1d13-4dc1-98e7-e498db7ec7b9)
 
 A memonic for the Zodiac.
 Zodiac then and now.
