@@ -7,7 +7,7 @@ Some of the zodiac for December.
 
 A memonic for the Zodiac.
 Zodiac then and now.
-Zodiac in November at night fall.
+Zodiac in December at night fall.
 
 A flying horse  
 The water bearer  
